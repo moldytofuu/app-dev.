@@ -13,4 +13,7 @@
 ### My favorite Character 
 **Vigilante** - His character was a chaotic, psychotic and a loyal friend to peacemaker.
 
+## Rating 
+5/5
+
 >"You don't think it's interesting that a praying mantis has a favorite color and it might unexpectedly be teal?"
